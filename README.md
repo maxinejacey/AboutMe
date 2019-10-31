@@ -13,7 +13,8 @@ _Intern_
 
 |New York, NY|
 
-
+- Worked closely with the Market Executive and Senior Vice President on various philanthropic projects including those with the Brooklyn Botanical Garden.
+- Spent time on the trading floor of the bank, allowing me to gain experience
 
 
 
@@ -28,6 +29,9 @@ _Summer Camp Counselor_
 |Normandy Beach, NJ|
 
 
+- Protected the safety of every person participating in recreational activities at Normandy Bay Beach Camp by enforcing discipline rules.
+- Held responsibility for twenty 7 &amp; 8 year olds during daily activities, trips to the beach, and other field trips.
+- CPR and AED certified
 
 
 
@@ -45,22 +49,13 @@ President &amp; Creator – Civil Conversations Club
 
 
 
-_2019_
-
-_2023_
 
 
 
-_2018_
 
-- Worked closely with the Market Executive and Senior Vice President on various philanthropic projects including those with the Brooklyn Botanical Garden.
-- Spent time on the trading floor of the bank, allowing me to gain experience
 
-_2015-present_
 
-- Protected the safety of every person participating in recreational activities at Normandy Bay Beach Camp by enforcing discipline rules.
-- Held responsibility for twenty 7 &amp; 8 year olds during daily activities, trips to the beach, and other field trips.
-- CPR and AED certified
+
 
 
 
